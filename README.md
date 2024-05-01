@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-# I'm Djoudi-Mansouri
+# I'm Djoudi Mansouri
 
 ## And welcome to my github profile ! 😄
 
